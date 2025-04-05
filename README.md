@@ -1,0 +1,2 @@
+# pak-sim-data-rtool
+YOU CAN FIND PAKISTAN SIM NUMBERS DATA BY THIS TOOL 
